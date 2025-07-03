@@ -32,7 +32,7 @@ Core principles: emotional intelligence, data privacy, human primacy, ethical AI
 **Mac McFall**  
 Founder, M87 Studio  
 📧 m87gstudio@gmail.com  
-🌐 https://m87studio.com *(coming soon)*
+🌐 https://m87studio.net *(coming soon)*
 
 ---
 
